@@ -1,2 +1,0 @@
-# Holson
-Student Maths / Info
